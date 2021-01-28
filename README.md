@@ -1,2 +1,2 @@
 # amell
-Programmer
+Victim :)
